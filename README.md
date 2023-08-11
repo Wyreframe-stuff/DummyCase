@@ -1,2 +1,2 @@
 # DummyCase
-got the idea for a case Alternator from reddit
+got the idea for a Case Alternator from reddit
